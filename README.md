@@ -3,7 +3,7 @@
 
 **Author:** Joshua Borketey Kattah  
 **Degree:** Bachelor of Science in Business Administration (Accounting Major), University of Ghana  
-**Document:** [📄 Download Full Thesis PDF](./Joshua_Kattah_Thesis.pdf)
+**Document:** [📄 Download Full Thesis PDF](./RESEARCH%20PAPER_JOSHUA_BORKETEY_KATTAH.pdf)
 
 ---
 
